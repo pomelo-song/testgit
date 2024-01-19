@@ -16,6 +16,3 @@ Thanks!
 
 ### zhehi
    
-   niaho 
-   cesojo
-   
